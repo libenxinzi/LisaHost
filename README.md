@@ -1,4 +1,4 @@
-# 2024 Latest LisaHost Coupon Codes - Organized Summary of LisaHost Deals
+# 2025 Latest LisaHost Coupon Codes - Organized Summary of LisaHost Deals
 
 ## LisaHost Introduction
 
